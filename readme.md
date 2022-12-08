@@ -1,0 +1,1 @@
+Një punim i shkuretër rreth zemrës.
